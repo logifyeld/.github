@@ -1,1 +1,1 @@
-At [Logifyeld ELD](https://logifyeld.com/), we believe in Trucks.
+At [Logify ELD](https://logifyeld.com/), we believe in Trucks.
